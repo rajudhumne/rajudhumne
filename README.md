@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Raju Dhumne</h1>
-<h3 align="center">Perpetual Learner</h3>
+<h3 align="center">Software Enginner || Senior iOS App Develoepr</h3>
 
 - 📫 How to reach me **rajudhumne@gmail.com**
 
