@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **rajudhumne@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1uBuhuyhg0d0YfW7_exYMloD6Mpt4esde/view?usp=share_link](https://drive.google.com/file/d/1uBuhuyhg0d0YfW7_exYMloD6Mpt4esde/view?usp=share_link)
+- 📄 Know about my experiences [link](https://drive.google.com/file/d/1uBuhuyhg0d0YfW7_exYMloD6Mpt4esde/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
